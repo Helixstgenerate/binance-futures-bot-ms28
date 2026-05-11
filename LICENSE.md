@@ -1,4 +1,4 @@
-# 
+# rare Automation Script for binance futures bot | risk-management + low-frequency offers the most advanced binance futures bot, with risk-management and low-frequency. Ideal for
 
 
 
